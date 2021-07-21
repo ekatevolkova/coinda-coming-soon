@@ -1,1 +1,0 @@
-# coinda-coming-soon
